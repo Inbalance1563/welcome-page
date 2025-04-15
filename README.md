@@ -1,3 +1,3 @@
-# Welcome Page for Divorce Recovery Course
+# Welcome to the Bonus Course!
+You Can Heal from Divorce: An Interactive Grief Recovery Course
 
-This is a landing page for the bonus course accompanying the divorce journal.
